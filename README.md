@@ -1,1 +1,0 @@
-# sintu20fr-Data_Analyst
